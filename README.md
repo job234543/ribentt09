@@ -15,4 +15,4 @@
 隐私保护方面，平台采用HTTPS加密技术，确保用户的浏览数据安全，避免信息泄露。平台还会限制恶意广告的出现，提供无干扰的观看环境，保证观众可以专心观看影片内容。  
 综上所述，成人色站久久综合类影片平台通过高清播放、免注册观看、丰富的影片分类和强大的隐私保护，为观众提供了一个理想的观看平台。平台的流畅、安全和便捷，使其成为现代成人影迷的首选。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/job234543/ribentt09)</span>
